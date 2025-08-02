@@ -1,2 +1,0 @@
-# Untuk-pacarku-
-Love
